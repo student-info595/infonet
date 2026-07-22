@@ -1,7 +1,8 @@
 # Infonet Computer Trading and Training Center
 
 📍 Location: Sandhirkharka-1, Arghakhanchi  
-📞 Phone: 9847056247  
+📞 Phone: 9847056247 
+ gmail:9847056274arg@gmail.com
 
 ## About Us
 Infonet Computer Trading and Training Center has been serving the community for over **20 years**.  
